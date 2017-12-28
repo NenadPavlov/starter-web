@@ -2,6 +2,4 @@ DDDDrugi
 
 Treci
 
-Petis
-
-Sesti
+ajdeee
