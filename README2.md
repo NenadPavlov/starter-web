@@ -6,4 +6,4 @@ ajdeee
 
 Jos nesto
 
-2018. Copyright
+2018. Copyright!!!
